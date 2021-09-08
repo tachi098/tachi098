@@ -2,12 +2,12 @@
 
 [![Website](https://img.shields.io/website?label=javadocfast&style=for-the-badge&url=https://javadocfast.blogspot.com/)](https://javadocfast.blogspot.com/)
 
-## I'm a Poor Developer :v and Happy!!
+## All Power to the Imagination!!!
 
-- 🔭 Slogan: DO WHAT U LIKE AND LIKE WHAT U DO!
+- 🔭 Slogan: All Power to the Imagination!!
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
-- ⚡ Fun fact: I like watching 3d animation, soccer, soccer, games,...
+- ⚡ Fun fact: I like play chess, research
 
 ### Connect with me:
 
